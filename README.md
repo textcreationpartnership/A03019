@@ -35,8 +35,12 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Londons loue, to the Royal Prince Henrie meeting him on the riuer of Thames, at his returne from Ric
+
+1. TO THE RIGHT HONORABLE, Sr. THOMAS CAMBELL, KNIGHT, LORD Major of this famous Cittie of London: And to all the Aldermen his worthie Bretheren, &c.
+
 #####Body#####
+
+1. LONDONS LOVE, TO THE ROYALL PRINCE HENRIE, meeting him on the Riuer of Thames (at his returne from Richmonde) with a worthie Fleet of her Cittizens, on Turſday the laſt of May. 1610. &c.
 CORINEA, a very fayre and beautifull Nimphe, repreſenting the Genius of olde Corineus Queene, and thAMPION, a graue and iudicious Prophet-like perſonage, attyred in his apte habits, euery way anſwerab
 **Types of content**
 
